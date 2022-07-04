@@ -1,5 +1,5 @@
 👋 olá ,sou o  @Giullber 
-- 🌱 atualmente estou cursando o oitavo período em Estatística 
+- 🌱 atualmente estou cursando o 8º período em Estatística na UEPB
 - 💞️ Estou procurando colaborar em com alguns materiais para estudo
 - 📫 como me encontrar :  abaixo estão algumas redes sociais onde é possível entrar em contato comigo 
 
